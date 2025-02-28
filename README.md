@@ -1,0 +1,2 @@
+# ornestasubashi
+zyre juridike pronesore
